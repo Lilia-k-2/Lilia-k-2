@@ -12,4 +12,4 @@ Some facts about myself:
 -  ⌚ Worked for _Fama_ (Ukrainian brand)
 -  📚 My hobby is to study psychology and new things about IT
 
-📬 Feel free to reach out to me via my [Linkedin](https://www.linkedin.com/in/kurnytska-liliia-93579916b/) profile or [email](liliakurnytska@gmail.com) address
+📬 Feel free to reach out to me via my [Linkedin](https://www.linkedin.com/in/kurnytska-liliia-93579916b/) profile or email address _( liliakurnytska@gmail.com )_
